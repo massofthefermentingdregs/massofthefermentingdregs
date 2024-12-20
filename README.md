@@ -3,6 +3,6 @@
 <h4><a href="https://cat.atabook.org/" style="color: white;"> atabook</a>⠀ ⠀ <a href="https://rentry.co/isopod">rentry</a>⠀ ⠀ <a href="https://www.last.fm/user/zygothe">music</a> 
  </h4>
 
-<div id="header" align="right">
+<div id="header" align="left">
  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=elgjykck3q0llbegql1o5o61u&cover_image=true&theme=natemoo-re&show_offline=false&background_color=191515&interchange=false&bar_color=000000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
