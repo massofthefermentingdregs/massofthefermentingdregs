@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=massofthefermentingdregs&style=flat-square&color=000000&label=visitors) <img src="https://pixels.crd.co/assets/images/gallery06/902ddb74.gif?v=93aac41c" /> <br>
+![](https://komarev.com/ghpvc/?username=massofthefermentingdregs&style=flat-square&color=green&label=visitors)  <br>
 <img src="https://img.pokemondb.net/sprites/black-white/anim/normal/treecko.gif" width="44"/>   
 <h4><a href="https://cat.atabook.org/" style="color: white;"> atabook</a>⠀ ⠀ <a href="https://rentry.co/senku">rentry</a>⠀ ⠀ <a href="https://www.last.fm/user/zygothe">music</a> 
  </h4>
