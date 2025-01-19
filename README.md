@@ -1,8 +1,6 @@
-![](https://komarev.com/ghpvc/?username=massofthefermentingdregs&style=flat-square&color=grey&label=visitors)  <br>
+![](https://komarev.com/ghpvc/?username=massofthefermentingdregs&style=flat-square&color=000000&label=visitors)  <br>
 <img src="https://68.media.tumblr.com/b8c8a99992e2e2253835d1b7c1404076/tumblr_o3lhieXlsK1ustgzfo1_500.gif" width="200"/>  
- <br>
-
-<h4><a href="https://cat.atabook.org/" style="color: white;"> atabook</a>⠀ ⠀ <a href="https://rentry.co/lee">rentry</a>⠀ ⠀ <a href="https://www.last.fm/user/zygothe">music</a> 
+ <h4><a href="https://cat.atabook.org/" style="color: white;"> atabook</a>⠀ ⠀ <a href="https://rentry.co/lee">rentry</a>⠀ ⠀ <a href="https://www.last.fm/user/zygothe">music</a> 
  </h4>
 
 <div id="header" align="left">
