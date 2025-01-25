@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=massofthefermentingdregs&style=for-the-badge&color=ff2512&label=visitors)  ![](https://xyz.crd.co/assets/images/gallery12/7188a090.gif?v=de6feabd) <br>
+![](https://komarev.com/ghpvc/?username=massofthefermentingdregs&style=folat-square&color=ff2512&label=visitors)  ![](https://xyz.crd.co/assets/images/gallery12/7188a090.gif?v=de6feabd) <br>
 <img src="https://64.media.tumblr.com/b90831194d28836b1ea6474d04081e83/979f0667c41f9c58-cf/s500x750/f3ce3fdbac2e48a4434be85b1148adcd2665fec4.gifv" width="200"/>  
  <blockquote>
  <h4> <a href="https://neospring.org/@soul" style="color: black;">CHATBOX</a>⠀⠀<a href="https://rentry.co/lee">RENTRY</a>⠀⠀<a href="https://www.last.fm/user/zygothe"> ♫ </a> </h4>
