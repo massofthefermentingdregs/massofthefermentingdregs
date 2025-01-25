@@ -1,7 +1,7 @@
-![](https://komarev.com/ghpvc/?username=massofthefermentingdregs&style=flat-square&color=000000&label=visitors)  ![](https://i.postimg.cc/MH2X6J9s/4d0cb6e7.gif) <br>
-<img src="https://68.media.tumblr.com/b8c8a99992e2e2253835d1b7c1404076/tumblr_o3lhieXlsK1ustgzfo1_500.gif" width="250"/>  
+![](https://komarev.com/ghpvc/?username=massofthefermentingdregs&style=flat-square&color=ff2512&label=visitors)  ![](https://xyz.crd.co/assets/images/gallery12/7188a090.gif?v=de6feabd) <br>
+<img src="https://64.media.tumblr.com/b90831194d28836b1ea6474d04081e83/979f0667c41f9c58-cf/s500x750/f3ce3fdbac2e48a4434be85b1148adcd2665fec4.gifv" width="200"/>  
  <blockquote>
- <h4> <a href="https://neospring.org/@soul" style="color: white;">CHATBOX</a>⠀⠀<a href="https://rentry.co/lee">RENTRY</a>⠀⠀<a href="https://www.last.fm/user/zygothe">MUSIC</a> </h4>
+ <h4> <a href="https://neospring.org/@soul" style="color: white;">CHATBOX</a>⠀⠀<a href="https://rentry.co/lee">RENTRY</a>⠀⠀<a href="https://www.last.fm/user/zygothe"> ♫ </a> </h4>
  </blockquote>
 <div id="header" align="left">
  
