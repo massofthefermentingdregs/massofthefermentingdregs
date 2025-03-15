@@ -1,7 +1,7 @@
-![](https://komarev.com/ghpvc/?username=massofthefermentingdregs&style=folat-square&color=000000&label=GEARS)  ![](https://i.imgur.com/n3eduH9.gif) <br>
-<img src="https://i.postimg.cc/4dGYRcdS/11c810eedf6657d5bf034d3120f5998d.gif" width="210"/>  
+![](https://komarev.com/ghpvc/?username=massofthefermentingdregs&style=folat-square&color=000000&label=GEARS)  ![](https://xyz.crd.co/assets/images/gallery11/3952962b.gif?v=de6feabd) <br>
+<img src="https://i.pinimg.com/736x/62/fa/f1/62faf1eea96fa6aff805c2e365df580b.jpg" width="210"/>  
  <blockquote>
- <h4> <a href="https://neospring.org/@soul" style="color: black;">CHATBOX</a>⠀⠀<a href="https://rentry.co/lee">RENTRY</a>⠀⠀<a href="https://www.last.fm/user/zygothe"> ♫ </a> </h4>
+ <h4> <a href="https://neospring.org/@soul" style="color: black;">CHAT</a>⠀⠀<a href="https://rentry.co/lee">RENTRY</a>⠀⠀<a href="https://www.last.fm/user/zygothe">MUSIC</a> </h4>
  </blockquote>
 <div id="header" align="left">
  
